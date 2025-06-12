@@ -1,2 +1,1 @@
-# glaringly_microhmsiz47
-magnes nonsocial deepens panelists polysyllabicity valency dud collectorate sublong preforming 
+gaufer johnston devilkins fillips outhyperbolize acclimatized untwitched pseudoscopicall increments owl 
